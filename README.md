@@ -1,6 +1,6 @@
-# <a href="https://tinyurl.com/3kj2yj2s"">QizilBilet.com</a>
+# <a href="https://tinyurl.com/3kj2yj2s">QizilBilet.com</a>
 
-# <a href="https://tinyurl.com/3kj2yj2s"">CLICK HERE FOR ACCESS</a>
+# <a href="https://tinyurl.com/3kj2yj2s">CLICK HERE FOR ACCESS</a>
 
 <meta charset="UTF-8">
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
